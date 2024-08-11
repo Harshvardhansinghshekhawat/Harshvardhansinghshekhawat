@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Harshvardhansinghshekhawat
 - 👀 I’m interested in tech software
-- 🌱 I’m currently learning symbiosis institute of computer studies and research
+- 🌱 I’m currently learning symbiosis institute of computer studies and research,pune
 - 💞️ I’m looking to collaborate on google,microsoft and deloitte
 - You can reach me by sending email on hv42772@gmail.com
 - 
